@@ -1,1 +1,0 @@
-# pamuji.github.io
